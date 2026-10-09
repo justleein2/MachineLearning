@@ -1,0 +1,1 @@
+I was unable to show that I spent credits likely because I did not give it time to update. Instead I put screenshots of the billing account and proof that my account is paid. I also showed the Agent screen to show that I did not use regular colab.
